@@ -1,6 +1,6 @@
 # Folding-Beijing
 
-18th Nov 2017, 19 people in an industrial neighborhood in south Beijing was killed in a fire accident. The migrants workers eviction were accelerated by this event. Beijing government launched an action called ”Inspection, eviction and regulation” in the name of improving fire protection. 
+18th Nov 2017, 19 people lived in an industrial neighborhood in south Beijing was killed in a fire accident. The migrants workers eviction were accelerated by this event. Beijing government launched an action called ”Inspection, eviction and regulation” in the name of improving fire protection. 
 
 By 26th Nov 2017, city regulators need to evict tons of thousands what they called “Low quality population”, the residents who live here, need to do whatever they can, to protect themselves from being evicting. 
 Stay or leave? This is a war without winner. 
